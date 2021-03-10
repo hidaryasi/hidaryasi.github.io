@@ -1,0 +1,1 @@
+# hidaryasi.github.io
